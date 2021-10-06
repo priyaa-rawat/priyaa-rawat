@@ -8,7 +8,6 @@
 -💬 Ask me about anything you think I will be able to help you with.
 - 📫 How to reach me: My email-priarwt1451@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact: I write,sing and am a novice guitar player.
 -❣️ Fav quotes: Life is a tragic comedy.
                  Darkest is the hour before the dawn.
                  You are not perfect but you grow beautiful with time.
