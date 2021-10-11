@@ -8,7 +8,8 @@
 - 📫 How to reach me: My email-priarwt1451@gmail.com
 - You won't regret having a look at this blog  https://priyaa-rawat.github.io/Catchup-github-contribution/ 
 - 😄 Pronouns: she/her
-- ❣️ Quoted by me-    ##"You are not perfect but you grow beautiful with time."
-- ******************* ##"I can't learn tech by how you tell but how  you do"
-<img src="https://thumbs.gfycat.com/DecimalInfiniteKiskadee-size_restricted.gif" />
+- ❣️ Quoted by me-<br>
+### "You are not perfect but you grow beautiful with time."
+### "One can't learn tech by how they tell but how  they do"
+<center><img src="https://thumbs.gfycat.com/DecimalInfiniteKiskadee-size_restricted.gif" /><center>
 
